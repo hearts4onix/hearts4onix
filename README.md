@@ -1,0 +1,6 @@
+- Hi, I’m Sage (*≧∀≦*)
+- taken by onix<3
+- I love my pretty boy 
+- bisexual 🎀🧸🍡
+- cutecore (๑>◡<๑)
+- 25/02/'23 ~22:56~
